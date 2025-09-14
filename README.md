@@ -87,6 +87,10 @@ As I continue my doctoral journey, I am excited to further develop skills in adv
 
 ## 📚 **Other Publications**
 
+- **"International Wildlife Conservation Day 2024: Workshop on conservation of wildlife with special reference to Indian Horseshoe Crabs, Chandbali College, Odisha"**
+     *Published in ZOO’S PRINT, 40(8), 32–33, 2025*
+    [Read it here](https://zoosprint.org/index.php/zp/article/view/8006/7251) 
+
 - **"Notes on parturition of Bamboo Pit Viper in wild"**  
   *Published in [Newsletter of the South Asian Reptile Network], 2025*  
   [Read it here](https://zoosprint.org/index.php/zp/article/view/7967/7213)
