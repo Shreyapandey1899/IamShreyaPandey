@@ -87,6 +87,13 @@ As I continue my doctoral journey, I am excited to further develop skills in adv
 
 ## 📚 **Other Publications**
 
+
+- **"Predation of Rough-tailed Sand Boa Eryx conicus (Schneider,1801) by Common Krait Bungarus caeruleus (Schneider,1801) in Gujarat, India"**
+     *Published in Sauria, Volume 47 • Issue 4 • December 2025*
+
+- **"First record of the Royal Snake Spalerosophis atriceps (Fischer, 1885) from Rajkot District, Gujarat, India"**
+     *Published in Sauria, Volume 47 • Issue 3 • September 2025*
+
 - **"International Wildlife Conservation Day 2024: Workshop on conservation of wildlife with special reference to Indian Horseshoe Crabs, Chandbali College, Odisha"**
      *Published in ZOO’S PRINT, 40(8), 32–33, 2025*
     [Read it here](https://zoosprint.org/index.php/zp/article/view/8006/7251) 
